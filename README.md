@@ -1,0 +1,1 @@
+projekt Boostrap - kurz czechitas
